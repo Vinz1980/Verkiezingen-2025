@@ -20,3 +20,7 @@ Je probeert dit enigszins netjes uit te vouwen en dan kies je iemand van de part
 Of krijg je ineens een last-minute ingeving en stem je toch op iets totaal anders? Of blanco?
 Hoe dan ook, je moet het formulier weer netjes opvouwen en in de stembus deponeren.
 ### Tellen.
+Aan het eind van de dag tellen de vrijwilligers alle stemmen. Dit doen alle stembureaus.
+Dit wordt allemaal bij elkaar opgeteld, en dit leidt tot de totaaltelling.
+En gaandeweg het proces van tellen worden er al exitpolls gehouden, mensen vragen waarop ze gestemd hebben.
+### De uitslag.
