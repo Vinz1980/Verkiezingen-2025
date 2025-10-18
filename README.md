@@ -17,3 +17,6 @@ Vergeet vooral ook je identiteitsbewijs niet, dit heb je nodig.
 Je meld je aan bij de vrijwilligers die je stempas en ID controleren en als alles goed is krijg je een stemformulier en potlood.
 Nou ja, stemformulier.. het is een stuk papier formaatje behangrol met al die partijen en namen erop.
 Je probeert dit enigszins netjes uit te vouwen en dan kies je iemand van de partij waar je op wilt stemmen.
+Of krijg je ineens een last-minute ingeving en stem je toch op iets totaal anders? Of blanco?
+Hoe dan ook, je moet het formulier weer netjes opvouwen en in de stembus deponeren.
+### Tellen.
