@@ -11,3 +11,7 @@ Je kunt de verkiezingsprogrammas vergelijken (evt. aan de hand van een AI hulp z
 Kijken welke speerpunten er zijn en of je zo een betere keuze kunt maken.
 Verder kun je ook kijken naar zaken, hoe groot is de partij? Hoeveel kans is er dat ze hun programma waar kunnen maken? 
 En ook belangrijk de berekening van het centraal planbureau, hoe betalen ze al deze plannen?
+### Stemmen.
+Met je stempas en vol goede moed ga je naar een stemlokaal bij jou in de buurt.
+Vergeet vooral ook je identiteitsbewijs niet, dit heb je nodig.
+Je meld je aan bij de vrijwilligers die je stempas en ID controleren en als alles goed is krijg je een stemformulier en potlood.
