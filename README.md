@@ -7,3 +7,5 @@ Dus veel mensen maken gebruik van een stemhulp als: Stemwijzer, Kieskompas, Stem
 Aan de hand van zulke stemhulpen krijg je een indicatie welke partij(en) het best bij je past.
 ### Hoe verder?
 Als je een idee hebt in welke hoek je zit en welke partijen je het meest aanspreken kun je deze onderling vergelijken.
+Je kunt de verkiezingsprogrammas vergelijken (evt. aan de hand van een AI hulp zoals OpenAI/ChatGPT).
+Kijken welke speerpunten er zijn en of je zo een betere keuze kunt maken.
