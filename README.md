@@ -33,3 +33,5 @@ Dan begint het de formatie.
 ### De formatie
 Een formatieproces is vaak niet eenvoudig. Verschillende partijen gaan zoeken of ze een coalitie kunnen vormen met andere partijen om zo tot een meerderheid te komen.
 Maar wie wil met wie? Of met wie zeker niet? 
+Dit is een intensief en tijdrovend proces. Vaak geleid door een informateur die met verschillende partijen spreekt en onderhandeld om te zien of ze bij elkaar kunnen komen.
+Al deze tijd is er nog steeds geen regering, ondanks dat iedereen gestemd heeft.
