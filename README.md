@@ -35,3 +35,4 @@ Een formatieproces is vaak niet eenvoudig. Verschillende partijen gaan zoeken of
 Maar wie wil met wie? Of met wie zeker niet? 
 Dit is een intensief en tijdrovend proces. Vaak geleid door een informateur die met verschillende partijen spreekt en onderhandeld om te zien of ze bij elkaar kunnen komen.
 Al deze tijd is er nog steeds geen regering, ondanks dat iedereen gestemd heeft.
+Pas als er een meerderheid is gevormd die het eens is over hoe ze samen verder gaan, dan pas is het zover.
