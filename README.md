@@ -24,3 +24,10 @@ Aan het eind van de dag tellen de vrijwilligers alle stemmen. Dit doen alle stem
 Dit wordt allemaal bij elkaar opgeteld, en dit leidt tot de totaaltelling.
 En gaandeweg het proces van tellen worden er al exitpolls gehouden, mensen vragen waarop ze gestemd hebben.
 ### De uitslag.
+Na een lange dag en als alle stemmen geteld zijn volgt de uitslag.
+Het wordt bekend welke partij hoeveel zetels heeft gehaald.
+Feestende winnaars en treurende verliezers worden getoond op de tv beelden.
+Maar dan zijn we er nog niet, want in de meeste gevallen hebben we geen meerderheid.
+Om te regeren moet het een meerderheid zijn, dus minimaal 76 van de 150 zetels.
+Dan begint het de formatie.
+### De formatie
