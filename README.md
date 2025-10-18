@@ -31,3 +31,5 @@ Maar dan zijn we er nog niet, want in de meeste gevallen hebben we geen meerderh
 Om te regeren moet het een meerderheid zijn, dus minimaal 76 van de 150 zetels.
 Dan begint het de formatie.
 ### De formatie
+Een formatieproces is vaak niet eenvoudig. Verschillende partijen gaan zoeken of ze een coalitie kunnen vormen met andere partijen om zo tot een meerderheid te komen.
+Maar wie wil met wie? Of met wie zeker niet? 
